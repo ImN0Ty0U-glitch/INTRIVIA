@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [Cluster 2] Sejauh Ini 
 [teruntuk kakak-kakak pendamping yang habet dan penyabar, terima kasih atas bimbingan dan canda gurau nya bersama kami. tidak kusangka bahwa diri ku memmang akan bertemu orang orang yang hebat dan mau menyempatkan waktu nya untuk kita-kita yang terkadang memang menjengkelkan, dan tidak lupa dengan teman teman ku yang juga merangkulku hingga saat ini. terimakasih ya kakaks dan teman-teman ku. semoga aku menemui kalian di titik teratas kalian nanti, sukses bersama dan beristirahat dengan tenang]
+
+## Harapan Kuliah 
+[Harapan saya berkuliah disini, aku ingin mempelajari teknologi sebanyak mungkin yang aku ingin kan. tidak lupa dengan penerapannya. aku sendiri juga ingin mengembangkan perusahaan ayah ku agar bisa berkembang pesat dan menyebar secara internasional. tak lupa dengan aku juga membuat perusahaan ku sendiri."Everything is already measured, why haven't you taken yours". aku ingin berkembang dan membuat perkembangan itu sendiri menjadi nyata. perlahan-lahan namun pasti]
